@@ -14,6 +14,6 @@ Nas tim tvoria clenovia:
 
 1. Radovan Orinčák 
 2. Ladislav Suchý
-3.
+3. Erik Korbeľ
 4.
 
